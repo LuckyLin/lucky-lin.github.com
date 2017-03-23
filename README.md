@@ -1,1 +1,1 @@
-https://luckylin.github.io
+pingping-lin.com
